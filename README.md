@@ -1,2 +1,0 @@
-# Spazzamento_S1
-
